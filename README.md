@@ -10,6 +10,9 @@
 - ⚡ Fun fact **I am half Venezuelan and half Mexican**
 
 <h3 align="left">Connect with me:</h3>
+
+- 👨‍💻 How to reach me [https://josediaz.tech/](https://josediaz.tech/)
+
 <p align="left">
 </p>
 
