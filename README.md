@@ -5,13 +5,13 @@
 
 - 💬 Ask me about **resume tips, project ideas, and Formula 1**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1Y6L3cUbPLPe4nrotyauRQB8vzPnb9PCPMwgDQv9APW0/edit?usp=sharing](https://docs.google.com/document/d/1Y6L3cUbPLPe4nrotyauRQB8vzPnb9PCPMwgDQv9APW0/edit?usp=sharing)
+- 📄 Know about my experiences: [Resume](https://docs.google.com/document/d/1Y6L3cUbPLPe4nrotyauRQB8vzPnb9PCPMwgDQv9APW0/edit?usp=sharing)
 
 - ⚡ Fun fact **I am half Venezuelan and half Mexican**
 
 <h3 align="left">Connect with me:</h3>
 
-- 👨‍💻 How to reach me [https://josediaz.tech/](https://josediaz.tech/)
+- 👨‍💻 How to reach me: [https://josediaz.tech/](https://josediaz.tech/)
 
 <p align="left">
 </p>
